@@ -1,6 +1,6 @@
 # free-course
 
-Download course yang kalian mau, di sarankan memakai wifi karena filenya ada yang 27 GB
+Download course yang kalian mau, di sarankan memakai wifi karena filenya ada yang 23 GB
 
 Download course lainnya disini!
 
